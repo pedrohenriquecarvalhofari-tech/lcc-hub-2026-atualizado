@@ -1,1 +1,0 @@
-# lcc-hub-2026-atualizado
